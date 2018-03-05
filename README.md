@@ -1,4 +1,4 @@
 
 
-# [cryptospace.info](http://cryptospace.info)
+# [](http://)
 
